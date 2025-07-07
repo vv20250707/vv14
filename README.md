@@ -22,4 +22,4 @@
 
 如果你正在寻找一个稳定、免费的日本AV免费在线观看平台，立即访问我们推荐的站点。这里有高清、无水印的影片资源，每日更新最新内容，确保你可以随时观看到最新的日本AV影片，尽情享受高清不卡顿的观影乐趣。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/vv20250707/vv14 ）</span>
